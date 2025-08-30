@@ -1,1 +1,1 @@
-I have completed my Intership from Vault of codes
+I have completed my Internship from Vault of codes
